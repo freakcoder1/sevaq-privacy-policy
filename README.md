@@ -1,0 +1,2 @@
+# sevaq-privacy-policy
+privacy 
